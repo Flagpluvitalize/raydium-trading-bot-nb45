@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure raydium trading bot Module | sandwich-attack-protection + liquidity-provision, the #1 raydium trading bot. Includes sandwich-attack-protection and
 
 
 
